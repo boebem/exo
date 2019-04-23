@@ -1,1 +1,0 @@
-c'est mon activité, je voudrais montrer que j'ai compris le cours même s'il n'y a pas de logique dans le contenu dans mon travail.
